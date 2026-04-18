@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+这里是小麦捏，可能用github也并不是因为什么工作也什么学业呀上的需要，全是个人兴趣爱好捏
+其他的也不知道说什么呢（）
+放个邮箱在这吧：mxlight2022@16.com
+
